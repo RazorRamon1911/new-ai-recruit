@@ -1,2 +1,0 @@
-# new-ai-recruit
-nj
